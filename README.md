@@ -9,7 +9,7 @@
 <div align="center">
 <a href="https://subhammer.atabook.org/?page=1">atabook</a> ⌣
   <a href="https://www.roblox.com/users/9062439665/profile">roblox</a> ⌣
-  <a href="https://github.com/JESTERSSPACE">other gh</a>
+  <a href="https://subhammeryuriceo.straw.page">strawpage</a>
 </div>
 <br><br><br>
 
